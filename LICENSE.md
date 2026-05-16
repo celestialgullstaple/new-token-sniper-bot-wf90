@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with best Automation for new token sniper bot | priority-gas-auctions & auto-sell. Featuring priority-gas-auctions and auto-sell, it's the
 
 
 
